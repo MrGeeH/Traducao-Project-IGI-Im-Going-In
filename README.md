@@ -2,4 +2,4 @@
 Feito por Min MrGeH!
 
 Versão 2.0 Lançada e agora com acentos e pontuações!
-![Imagem Não Carregada](https://m.media-amazon.com/images/M/MV5BM2I2ZjczNWYtZDhlYS00ZjBhLWExNjctYjI2MTFlMmI1YjdmXkEyXkFqcGc@._V1_.jpg)
+![Imagem Não Carregada](https://staticdelivery.nexusmods.com/mods/5349/images/18/18-1791559146-743689878.jpg)
